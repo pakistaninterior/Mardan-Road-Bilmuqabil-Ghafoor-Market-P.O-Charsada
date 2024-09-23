@@ -1,0 +1,1 @@
+# Mardan-Road-Bilmuqabil-Ghafoor-Market-P.O-Charsada
